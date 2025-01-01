@@ -16,12 +16,14 @@ has a large demand and I understand you are more interested in nations where dem
 not included in these statistics. According to the data, sales of units and income are quite high in nations like the 
 Netherlands, Ireland, Germany, and France. To guarantee that steps are taken to further seize these markets, I would 
 propose concentrating on these nations. 
+
 3rd 
 The top 10 consumers who have made the most purchases from the business have been the subject of the third 
 study. According to the statistics, there are not many differences between the top 10 consumer purchases. The fact 
 that the highest revenue-producing consumer only spent 17% more than the second highest demonstrates that the 
 company does not rely solely on a small number of consumers to generate income. This demonstrates that 
 consumers' ability to negotiate is limited and that the state of business is positive. 
+
 4th 
 The map chart concludes by comparing the places that have produced the greatest revenue to those that have not. 
 Apart from the UK, it is clear that nations like the Netherlands, Ireland, Germany, France, and Australia generate large 
